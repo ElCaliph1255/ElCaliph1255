@@ -1,0 +1,3 @@
+- 👋 Hi, I’m El Caliph
+- 👀 I’m interested in Hacking and Cyber Things that i don't know any thing about !
+- 🌱 I’m currently learning NOTHING..bc i don't have nothing to learn 
