@@ -1,3 +1,4 @@
-- 👋 Hi, I’m El Caliph
-- 👀 I’m interested in Hacking and Cyber Things that i don't know any thing about !
-- 🌱 I’m currently learning NOTHING..bc i don't have nothing to learn 
+-weird person sitting on the pc all the time and learning lot of subjects.
+-i'm only 16 years old so i'm not a big brain.- 
+-i'm going to become the next best SE in a big tech company.
+-i hate elon musk bc he's rich :)
